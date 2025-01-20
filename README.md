@@ -14,13 +14,9 @@ Discord｜sol_oculus
 No invitations yet.
 
 # Preview
-Console Log
 𝐜𝐨𝐦𝐢𝐧𝐨𝐧...
-! [img](.png)
 
 # Video
 𝐜𝐨𝐦𝐢𝐧𝐨𝐧...
 
 # 2025/1/20
-
-Translated with DeepL.com (free version)
