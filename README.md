@@ -11,7 +11,6 @@ Discord｜sol_oculus
 
 [discord invitation](https://discord.gg/gUGmD77t4A)
 
-No invitations yet.
 
 # Preview
 𝐜𝐨𝐦𝐢𝐧𝐨𝐧...
