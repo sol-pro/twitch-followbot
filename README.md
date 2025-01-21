@@ -17,6 +17,6 @@ Discord｜sol_oculus
 ![img](2.png)
 
 # Video
-[![YouTube]](https://www.youtube.com/watch?v=L7A7YsRgugY)
+[![YouTube](1.png)](https://www.youtube.com/watch?v=L7A7YsRgugY)
 
 # 2025/1/21
