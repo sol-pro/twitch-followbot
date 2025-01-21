@@ -13,7 +13,8 @@ Discord｜sol_oculus
 
 
 # Preview
-𝐜𝐨𝐦𝐢𝐧𝐨𝐧...
+![img](1.png)
+![img](2.png)
 
 # Video
 𝐜𝐨𝐦𝐢𝐧𝐨𝐧...
