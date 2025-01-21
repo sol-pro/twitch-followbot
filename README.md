@@ -17,6 +17,7 @@ Discord｜sol_oculus
 ![img](2.png)
 
 # Video
+!(https://youtu.be/L7A7YsRgugY?si=r8xz7dv8niaA-Mxj)
 𝐜𝐨𝐦𝐢𝐧𝐨𝐧...
 
 # 2025/1/21
