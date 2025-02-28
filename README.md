@@ -5,7 +5,7 @@ Increase your Twitch following.
 
 It is written in python and can increase the follow of a given user.
 
-Please contact us if you want the source code.
+If you need the source code, we sell it, please contact us.
 
 Discord｜sol_oculus
 
