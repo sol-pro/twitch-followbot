@@ -27,4 +27,4 @@ Discord｜sol_oculus
 [![YouTube](image.png)](https://www.youtube.com/watch?v=L7A7YsRgugY)
 [YouTube](https://www.youtube.com/watch?v=L7A7YsRgugY)
 
-# 2025/3/19
+# 2025/3/24
